@@ -1,4 +1,4 @@
-## 
+## Você não é obrigado a colocar-se em chamas para manter os outros aquecidos.
 
 <div align="center">
   <a href="https://github.com/UwUsca">
